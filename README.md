@@ -1,0 +1,1 @@
+# bds-projekt-solo
